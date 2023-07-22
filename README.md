@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @a-bree
+- 👀 I’m interested in ... culture, technology, psychology, philosophy and spirituality
+- 🌱 I’m currently learning ... data analysis/tics
